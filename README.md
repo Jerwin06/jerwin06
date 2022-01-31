@@ -20,7 +20,7 @@
 
 
 ### EDUCATION  
-- BTech Information Technology @Kalasalingam Academdy of Research and Education(2019-2023  
+- BTech Information Technology @Kalasalingam Academdy of Research and Education(2019-2023) 
   
 
 <br/>  
